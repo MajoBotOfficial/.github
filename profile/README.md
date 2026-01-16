@@ -1,4 +1,4 @@
-## Kamiko 🔥
+## Kamiko 
 
 <!--
 
